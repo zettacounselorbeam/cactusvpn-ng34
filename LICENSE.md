@@ -1,4 +1,4 @@
-
+Enhance your Trust.Zone experience with high-speed Trust.Zone Addon | obfuscation + split-tunneling, the #1 addon. Includes obfuscation and split-tunneling for a safer and more
 
 
 
